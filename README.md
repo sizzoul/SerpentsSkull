@@ -1,4 +1,4 @@
-# Title of AP
+# Serpents Skull
 
 [A Series of Dice-Based Events Discord](https://discord.gg/UQ8UD3H)
 
