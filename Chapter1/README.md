@@ -1,4 +1,4 @@
-# Title of AP
+# Serpents Skull - Book 1: Souls for Smuggler's Shiv
 
 [A Series of Dice-Based Events Discord](https://discord.gg/UQ8UD3H)
 
